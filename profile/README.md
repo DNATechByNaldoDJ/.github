@@ -1,6 +1,6 @@
 #DNATech
 
-<img width="1350" height="306" alt="image" src="https://github.com/user-attachments/assets/47830e35-6b60-46b1-b65c-4552d9db4267" />
+<img width="1200" height="280" alt="DNATech_GitHub" src="https://github.com/user-attachments/assets/5028ebea-0df0-4d71-bf2e-bb9e75f0879d" />
 
 ---
 
