@@ -13,3 +13,4 @@ Precisa de apoio sénior para destravar o backlog ou estabilizar a operação da
 [Conectar no LinkedIn](https://www.linkedin.com/in/naldodj/) • [Enviar E-mail Comercial](mailto:marinaldo.jesus@gmail.com) • [Visitar o BlackTDN](https://blacktdn.com.br)
 
 ---
+<img width="1350" height="306" alt="image" src="https://github.com/user-attachments/assets/47830e35-6b60-46b1-b65c-4552d9db4267" />
